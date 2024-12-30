@@ -2,7 +2,7 @@
 - 👀 I’m interested in front end web dev
 - 🌱 I’m currently learning front end web dev
 - 💞️ I’m looking to collaborate on anything and everything related to front end dev
-- 📫 How to reach me @Slimtobiii on twitter
+- 📫 @Rav3nlaud3 on twitter
 - 😄 Pronouns: he
 - ⚡ Fun fact: i do not give up
 
